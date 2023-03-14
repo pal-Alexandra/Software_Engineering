@@ -3,7 +3,7 @@
 - Pal Alexandra   
 - Ostafe Emima  
 - Maftei Briana  
-- Florentina Dumitriu  
+- Dumitriu  Oana
 - Vlaisan Flavia Maria  
 - Frij Alexandra   
  
